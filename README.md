@@ -1,0 +1,1 @@
+Manusia kuat# Masive
